@@ -1,5 +1,6 @@
-Andew is a zhazha. 
+﻿Andew is a zhazha. 
 I am sleeping,duang~.
 duang
 jj
-ôôô
+ôôôss
+杀杀杀
